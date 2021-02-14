@@ -1,10 +1,4 @@
-![Imgur](https://i.imgur.com/c3ZdGqm.png)
-![Imgur](https://i.imgur.com/GoaQA0B.png)
-![Imgur](https://i.imgur.com/kkRkweR.png)
-![Imgur](https://i.imgur.com/W5OkIt8.png)
-![Imgur](https://i.imgur.com/oCzgg3O.png)
-![Imgur](https://i.imgur.com/dftIuvQ.png)
-![Imgur](https://i.imgur.com/xHki1zO.png)
+![Imgur](https://i.imgur.com/yIFTxaP.png)
 
 
 # English
